@@ -1,1 +1,0 @@
-# sxpromax10x
